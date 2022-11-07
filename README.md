@@ -1,1 +1,1 @@
-# clankwu.github.io
+# clankwu.com
